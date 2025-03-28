@@ -1,0 +1,1 @@
+# funcao-mais-util-do-mundo
